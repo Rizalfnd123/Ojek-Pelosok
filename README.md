@@ -1,0 +1,1 @@
+OJEK PELOSOK
